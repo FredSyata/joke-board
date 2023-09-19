@@ -18,3 +18,4 @@ Why did the golfer bring two pairs of pants? In case he got a hole in one.
 Translation: 
 As I get older, I remember all the people I lost on my path. Perhaps my budding career as a tour guide wasn't quite the right choice.
 
+Why did the scarecrow win an award? Because he was outstanding in his field!
