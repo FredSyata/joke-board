@@ -22,6 +22,8 @@ What does the peanut chasing the other peanut say to the peanut? I'm a cashew!
 
 Why did the scarecrow win an award? Because he was outstanding in his field!
 
+How do you tell the difference between an alligator and a crocodile? One will see you later and one will see you in a while.
+
 Why do we tell actors to "break a leg" - Because every play has a cast. 
 
 What's the best thing about Switzerland? I don't know but the flag is a big plus!
