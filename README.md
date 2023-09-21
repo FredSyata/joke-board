@@ -33,3 +33,5 @@ What's the best thing about Switzerland? I don't know but the flag is a big plus
 "What do you call a factory that makes okay products?" "A satisfactory."
 
 Where do surfers learn to surf? Boarding school.
+
+Did you hear the story about the claustrophobic astronaut? He just needed some space.
