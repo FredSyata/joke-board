@@ -20,4 +20,6 @@ As I get older, I remember all the people I lost on my path. Perhaps my budding 
 
 Why did the scarecrow win an award? Because he was outstanding in his field!
 
+"What do you call a factory that makes okay products?" "A satisfactory."
+
 Where do surfers learn to surf? Boarding school.
