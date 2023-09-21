@@ -22,6 +22,8 @@ What does the peanut chasing the other peanut say to the peanut? I'm a cashew!
 
 Why did the scarecrow win an award? Because he was outstanding in his field!
 
+What do you call a dog that can do magic? A labracadabrador
+
 How do you tell the difference between an alligator and a crocodile? One will see you later and one will see you in a while.
 
 Why do we tell actors to "break a leg" - Because every play has a cast. 
