@@ -22,6 +22,8 @@ What does the peanut chasing the other peanut say to the peanut? I'm a cashew!
 
 Why did the scarecrow win an award? Because he was outstanding in his field!
 
+Why do we tell actors to "break a leg" - Because every play has a cast. 
+
 What's the best thing about Switzerland? I don't know but the flag is a big plus!
 
 "What do you call a factory that makes okay products?" "A satisfactory."
