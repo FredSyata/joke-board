@@ -30,6 +30,7 @@ Why do we tell actors to "break a leg" - Because every play has a cast.
 
 What's the best thing about Switzerland? I don't know but the flag is a big plus!
 
+What do cats have for breakfast? Mice Crispies
 "What do you call a factory that makes okay products?" "A satisfactory."
 
 Where do surfers learn to surf? Boarding school.
