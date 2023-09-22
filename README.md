@@ -35,3 +35,5 @@ What's the best thing about Switzerland? I don't know but the flag is a big plus
 Where do surfers learn to surf? Boarding school.
 
 Did you hear the story about the claustrophobic astronaut? He just needed some space.
+
+What is Forrest Gump's email password? 1forrest1.
