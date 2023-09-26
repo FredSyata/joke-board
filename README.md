@@ -30,8 +30,18 @@ Why do we tell actors to "break a leg" - Because every play has a cast.
 
 What's the best thing about Switzerland? I don't know but the flag is a big plus!
 
+What do cats have for breakfast? Mice Crispies
+
 "What do you call a factory that makes okay products?" "A satisfactory."
 
 Where do surfers learn to surf? Boarding school.
 
 Did you hear the story about the claustrophobic astronaut? He just needed some space.
+
+What is Forrest Gump's email password? 1forrest1.
+
+Where do polar bears keep their money? In a snowbank.
+
+A bear walks into the bar and says to the bartender, "Can I get a rum...... and coke?"
+The bartender asks, "What's up with the pause?"
+The bear replies, "I don't know, I was born with them."
