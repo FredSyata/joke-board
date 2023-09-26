@@ -41,7 +41,3 @@ Did you hear the story about the claustrophobic astronaut? He just needed some s
 What is Forrest Gump's email password? 1forrest1.
 
 Where do polar bears keep their money? In a snowbank.
-
-A bear walks into the bar and says to the bartender, "Can I get a rum...... and coke?"
-The bartender asks, "What's up with the pause?"
-The bear replies, "I don't know, I was born with them."
