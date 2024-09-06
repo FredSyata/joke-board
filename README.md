@@ -9,3 +9,6 @@ They have anty-bodies.
 
 Where do polar bears keep their money?
 In a snowbank.
+
+I don't always tell dad jokes, but when I do he laughs.
+
