@@ -6,3 +6,6 @@ They don't have the guts!
 
 Why don't ants get sick? 
 They have anty-bodies.
+
+Where do polar bears keep their money?
+In a snowbank.
